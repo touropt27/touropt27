@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @touropt27
-- 👀 I’m interested in help and to help me.
+- 👀 I’m interested in help and help me to.
 - 🌱 I’m currently learning a little of everything.
 - 💞️ I’m looking to collaborate on my projects.
 - 📫 How to reach me in the most correct way or not, everything will depend on the person himself.
